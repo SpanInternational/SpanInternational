@@ -1,5 +1,5 @@
 # SpanInternational
-<h1>6 COUNTRIES TO STUDY ABROAD WITHOUT IELTS AND TOEFL</h1>
+<h1>5 COUNTRIES TO STUDY ABROAD WITHOUT IELTS AND TOEFL</h1>
 <br>
 <p>There is a question we heard a lot of times. Can I study abroad without ielts?  Yes! Honestly, ielts is a language test that aids your chances to study abroad. But there are countries which welcome you to study without ielts or toefl. Letz gets more detailed in the following sections. Here am providing details of countries where you can study without ielts or toefl. Find the country that is suitable for you and get your study visa from us  <a href="http://spaninternational.org/">CLICK HERE.</a>
 <br>
